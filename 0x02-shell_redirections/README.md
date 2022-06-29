@@ -1,1 +1,1 @@
-Being unique
+find the word
